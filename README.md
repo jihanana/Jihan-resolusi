@@ -1,1 +1,1 @@
-# Jihan-resolusi
+# resolusi
